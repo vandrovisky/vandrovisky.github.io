@@ -1,1 +1,0 @@
-# vandrovisky.github.io
